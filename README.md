@@ -1,4 +1,4 @@
-# Hi there, I'm Yevhenii (Jeka) Karaman 👋
+# Hi there, I'm Yevhenii Karaman 👋
 
 > *"Learning how to program life forward to living better."*
 
